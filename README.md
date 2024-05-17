@@ -1,4 +1,7 @@
-### Hi there 👋
+### **caio salatini**
+### 3 ano B - tecnologia
+![.](https://github.com/caiosalatini/caiosalatini/assets/170112711/a62ba119-c4a3-44ba-aa1e-c37ee925aa2b)
+
 
 <!--
 **caiosalatini/caiosalatini** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
