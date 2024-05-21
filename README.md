@@ -1,6 +1,8 @@
 ### **caio salatini**
 ### 3 ano B - tecnologia
 ![.](https://github.com/caiosalatini/caiosalatini/assets/170112711/a62ba119-c4a3-44ba-aa1e-c37ee925aa2b)
+![.](https://github.com/caiosalatini/caiosalatini/assets/170112711/9935b8d7-6861-493d-ad23-e9b20d55ed1d)
+
 
 
 <!--
